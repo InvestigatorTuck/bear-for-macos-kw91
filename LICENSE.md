@@ -1,4 +1,4 @@
-
+Get the ultimate Bear for macOS integration with Bear for macOS custom Integration: multi-device sync & real-time editing. Featuring multi-device sync and real-time editing, it's
 
 
 
